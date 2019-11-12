@@ -1,0 +1,2 @@
+# Barakah
+Lord is Good
